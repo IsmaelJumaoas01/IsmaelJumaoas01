@@ -1,4 +1,4 @@
 MY REMEDY
-![<3](https://i.redd.it/sovnnfesx7wc1.gif)
+![<3](https://github.com/IsmaelJumaoas01/IsmaelJumaoas01/blob/main/ichika.gif?raw=true)
 
 
