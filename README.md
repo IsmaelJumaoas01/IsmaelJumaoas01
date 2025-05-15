@@ -1,3 +1,4 @@
 MY REMEDY
-![<3](https://github.com/your-username/your-username/blob/main/assets/your-gif-name.gif?raw=true)
+![<3](https://i.redd.it/sovnnfesx7wc1.gif)
+
 
