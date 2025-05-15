@@ -1,2 +1,3 @@
 MY REMEDY
-(https://i.redd.it/sovnnfesx7wc1.gif)(https://www.reddit.com/media?url=https%3A%2F%2Fi.redd.it%2Fsovnnfesx7wc1.gif)
+![<3](https://github.com/your-username/your-username/blob/main/assets/your-gif-name.gif?raw=true)
+
